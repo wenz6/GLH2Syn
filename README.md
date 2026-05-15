@@ -1,3 +1,1 @@
-# GLH2Syn
-
-Coming Soon
+# Coming Soon
